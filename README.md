@@ -15,7 +15,7 @@ I’m a passionate **Tech Enthusiast**, a **Sports Lover**, a **Guitar Player** 
 - **Technology**: From programming to emerging tech trends.
 - **Sports**: Passionate about staying active and competing in sports.
 - **Guitar**: Always strumming and trying new tunes.
-- **Aviation**: Enthusiastic about the science of flight and air travel.
+- **Aviation**: Enthusiastic about Airports and Airplanes
 - **Video Editing**: Creating impactful videos, from concepts to final cuts.
 
 ---
