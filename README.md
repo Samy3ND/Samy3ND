@@ -20,24 +20,11 @@ I’m a passionate **Tech Enthusiast**, a **Sports Lover**, a **Guitar Player** 
 
 ---
 
-## 🤝 Collaboration:
-I’m open to collaborating on projects that **spark my interest** and bring **new challenges** to the table. Let’s build something cool together! 🚀
-
----
 
 ## 📫 How to Reach Me:
 - [LinkedIn](https://www.linkedin.com/in/samyog)  
 - [Instagram](https://www.instagram.com/samyog)
 
----
-
-## 🔥 Fun Fact:
-**Not very consistent**, but **always striving for improvement**. Every challenge is an opportunity to grow!
-
----
-
-## 💼 Current Focus:
-I’m always on the lookout for ways to improve my **technical skills** while balancing my **creative side**. Whether it’s learning new tech, playing guitar, or editing videos, I believe in **constant growth**. Let’s connect and collaborate on exciting opportunities! 😄
 
 ---
 
