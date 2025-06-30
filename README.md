@@ -28,9 +28,9 @@ Building projects that challenge and grow my skills.
 
 
 ## 📫 How to Reach Me:
-- [LinkedIn](https://www.linkedin.com/in/samyog)  
-- [Instagram](https://www.instagram.com/samyog)
-- [Website](kcsamyog.com.np)
+- [LinkedIn](https://www.linkedin.com/in/samyog-kc/)  
+- [Instagram](https://www.instagram.com/samyog.kc)
+- [Website](https://kcsamyog.com.np/)
 
 
 ---
